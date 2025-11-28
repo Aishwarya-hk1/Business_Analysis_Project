@@ -38,5 +38,5 @@ Applied BA techniques across varied real-world use cases.
 🔹 Author
 AISHWARYA H K
 Aspiring Business Analyst | Exploring Product Management | Passionate about Process Design
-LinkedIn Profile - https://www.linkedin.com/in/aishwaryahk
+LinkedIn Profile - https://www.linkedin.com/in/aishwarya-h-k-239079397
 
